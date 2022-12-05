@@ -1,5 +1,5 @@
-# janiyaofficial.github.io
+# janiyaofc.github.io
 
 JANIYA OFFICIAL WEB
 
-https://janiyaofficial.github.io/
+https://janiyaofc.github.io/
